@@ -1,2 +1,2 @@
 # XJTU
-My personal profile
+My name is Liu Suyang, born on November 1st, 2001, from Tongchuan City, Shaanxi Province, China. 23 years old, with a bachelor's degree, currently studying at the School of Software at Xi'an Jiaotong University, majoring in Software Engineering. Currently in the first year of graduate school, he is an active member of the Communist Party of China. My email is lsyang@stu.xjtu.edu.cn. The phone number is 15353229003
